@@ -1,0 +1,1 @@
+# -7L2.-Discord-Botuna-Eklenen-Modelin-kar-mlar-Yapmas-
